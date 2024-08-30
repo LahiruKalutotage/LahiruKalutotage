@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **LahiruKalutotage@gmail.com**
 
-- Web www.lahirukalutotage.com
+- 🌐 www.lahirukalutotage.com
   
 - 📱 +94718991994
 
